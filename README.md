@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Miguelmozo1
-- 👀 I’m interested in programming, hiking, snowboarding, and playing guitar.
+- 👀 I’m interested in programming, hiking, snowboarding, playing guitar, and learning anything new that I can get my hands on.
 - 🌱 I’m currently learning anything to do with programming and any subject from random interesting books.
 - 💞️ I’m looking to collaborate on any group projects that can give me any experience as I see only wanting to grow.
 - 📫 How to reach me email: mmozo393@gmail.com
