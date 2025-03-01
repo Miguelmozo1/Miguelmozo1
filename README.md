@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Miguelmozo1
 - 👀 
-- 🌱 I’m currently learning full-stack programming and continously being curious.
+- 🌱 Full stack programming
 - 💞️ 
 - 📫 Reach me at: mmozo393@gmail.com
 
